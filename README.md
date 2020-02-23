@@ -1,0 +1,1 @@
+# yasukazuo.github.io
